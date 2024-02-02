@@ -30,4 +30,5 @@ Cieszę się, że jesteś tutaj! 🚀
 
 # Moje strony
 https://www.wiesio.xyz/Portfolio/Store/index.html
+
 https://www.wiesio.xyz/Portfolio/OLD-Website/index.html
