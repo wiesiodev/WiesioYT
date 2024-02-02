@@ -27,3 +27,7 @@ Chętnie podzielę się wiedzą, doświadczeniem lub po prostu porozmawiam na te
 **[Link do serwera Discord FictionDev](https://discord.gg/FwfXTq9Y)**
 
 Cieszę się, że jesteś tutaj! 🚀
+
+# Moje strony
+https://www.wiesio.xyz/Portfolio/Store/index.html
+https://www.wiesio.xyz/Portfolio/OLD-Website/index.html
